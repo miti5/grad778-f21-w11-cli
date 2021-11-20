@@ -1,2 +1,2 @@
 Hi. I'm Mitra Rooein.
-My superhero is Supeman.
+My favorite superhero is Supeman.
